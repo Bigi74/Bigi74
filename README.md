@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Bigi74
+- 👀 I’m interested in Retro computing and i'm Retro Computers Collector
+- 📫 How to reach me mail: 1krokogator@gmail.com
